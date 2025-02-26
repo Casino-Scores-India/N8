@@ -1,6 +1,6 @@
 # N8 Casino Login ⬇️
 
-[PLAY NOW 💰](https://shortlinkapp.com/pZJBs)
+[**Get a 100% Welcome Bonus up to £10,000 + 50 FS 💰**](https://shortlinkapp.com/pZJBs)
 
 N8 Casino is an online gaming platform that has been gaining popularity among Indian players. It offers a wide variety of casino games, generous bonuses, and multiple banking options suitable for Indian users. The platform is known for its user-friendly interface, seamless mobile experience, and reliable customer support. This review will cover all the essential aspects of N8 Casino, including registration, available games, bonuses, payment methods, mobile compatibility, and more.
 
