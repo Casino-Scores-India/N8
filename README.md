@@ -10,6 +10,17 @@ N8 Casino is an online gaming platform that has been gaining popularity among In
 
 </a>
 
+
+|     ✅ Category	            |✅ Details                        
+|-----------------------    |-----------------------------------|
+|**📅 Established**              |Since 2000                        |
+|**🎲 Total Games**                 |Over 100 Casino Games + 10,000 Sports Events               | 
+|**🏆 Popular Games**              |Cricket Betting, Teen Patti, Rummy, Live Dealer Games                   |
+|**📱 Platforms**                |Desktop Website + Mobile Apps (iOS & Android)                  |
+|**🌍 Languages**                |English, Hindi                  |
+|**⚡ Key Features**                |Real-time Sports Betting, 24/7 Support, Fast Withdrawals               |
+
+
 ## Registration Process
 
 Signing up at N8 Casino is a straightforward process that takes only a few minutes. Here’s how you can create an account:
